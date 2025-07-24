@@ -12,7 +12,6 @@
 
 📫 **Entre em contato comigo:**  
 📧 joseeverton464@gmail.com  
-🔗 [LinkedIn (opcional)](https://www.linkedin.com/in/seu-usuario)  
 
 ---
 
